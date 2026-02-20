@@ -1,16 +1,40 @@
-## Hi there 👋
 
-<!--
-**dearsuns/dearsuns** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+![son](https://i.pinimg.com/736x/5b/2f/32/5b2f328cfdb6638d5bbe99484458cca7.jpg) _this is my first time doing this cut me some slack_ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+hello, call me by whatever name you know me by _!_ any pronouns, he/him pref though ,,  did i do this right guys pls tell me ↓ ↓ 
+
+         >> INT please it will make me smile
+         PJO fans!
+         Good omens
+         FNAF
+         JRWI fans (are you guys all dead)
+         epic fans
+         greek mythos
+         sally face
+         yellow jackets
+         valdangelo shippers 
+         etc !! check prns.cc ♡         
+         
+         
+         
+
+       >> IWC
+        hazbin hotel and the other one
+        if you use epic and pjo as a source for info
+        toxic shippers
+        extreme sexaul jokes
+        haunted hotel fandom
+
+
+       >> DNI
+       pernico / jasico dont even talk to m 😭 😭
+       proshippers
+       that weird ganymade x zeus comic ;-;
+       basic dni
+       yuri/yaoi fetish
+       Octavian hate, i will not fall for the propaganda ever
+
+       i like when people c+h pls do it yay!
+       
+    
