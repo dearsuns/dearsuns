@@ -11,6 +11,7 @@ hello, call me by whatever name you know me by _!_ any pronouns, he/him pref tho
          JRWI fans (are you guys all dead)
          epic fans
          greek mythos
+         any mythos 
          sally face
          yellow jackets
          valdangelo shippers 
