@@ -38,7 +38,7 @@ hello, call me by whatever name you know me by _!_ any pronouns, he/him pref tho
        telemachus/ody x hermes, i will Kill you slow
        sharpwolf die
        roleplays
-      people who make penople crazyly masculine and makes her the "man" in the marrirage and ody the twink malewife like boy bye🖕🖕🖕🖕🖕🖕
+      people who make penelope crazyly masculine and makes her the "man" in the marrirage and ody the twink malewife like boy bye🖕🖕🖕🖕🖕🖕
        
 
        i like when people c+h pls do it yay!
