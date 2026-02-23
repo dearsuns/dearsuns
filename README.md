@@ -35,6 +35,10 @@ hello, call me by whatever name you know me by _!_ any pronouns, he/him pref tho
        basic dni
        yuri/yaoi fetish
        Octavian hate, i will not fall for the propaganda ever
+       telemachus/ody x hermes, i will Kill you slow
+       sharpwolf die
+       roleplays
+       
 
        i like when people c+h pls do it yay!
        
