@@ -39,6 +39,7 @@ hello, call me by whatever name you know me by _!_ any pronouns, he/him pref tho
        sharpwolf die
        roleplays
       people who make penelope crazyly masculine and makes her the "man" in the marrirage and ody the twink malewife like boy bye🖕🖕🖕🖕🖕🖕
+       hating on my favorite chars and ships around me (i cry)
        
 
        i like when people c+h pls do it yay!
