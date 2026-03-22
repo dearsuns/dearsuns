@@ -5,6 +5,14 @@
 hello, call me by whatever name you know me by _!_ any pronouns, he/him pref though ,,  did i do this right guys pls tell me ↓ ↓ 
 
          >> INT please it will make me smile
+         the passenger fans 
+         The Pitt
+         LANGTAKER
+         LANGTAKER
+         langtaker
+         langtaker
+         langon x whitaker
+         langtaker 
          PJO fans!
          Good omens
          FNAF
