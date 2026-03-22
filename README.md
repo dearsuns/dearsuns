@@ -11,7 +11,7 @@ hello, call me by whatever name you know me by _!_ any pronouns, he/him pref tho
          LANGTAKER
          langtaker
          langtaker
-         langon x whitaker
+         langdon x whitaker
          langtaker 
          PJO fans!
          Good omens
